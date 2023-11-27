@@ -1,0 +1,6 @@
+- 👋 Hi, I’m @mrniste
+- 👀 I’m interested in Coding
+- 🌱 I’m currently learning Web devlopment
+- 💞️ I’m looking to collaborate on any project!
+- 📫 How to reach me: Use scracth profile: https://scratch.mit.edu/users/mrnister/
+- Please don't speread hate!
